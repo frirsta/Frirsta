@@ -8,4 +8,4 @@
 
 🌱 Always learning and eager to collaborate on exciting projects. Let's connect and build something awesome together!
 
-📫 You can reach me at frirstaalikarem@gmail.com or find me on [LinkedIn](https://linkedin.com/in/frirsta).
+📫 You can reach me at frirsta@devdonna.com or find me on [LinkedIn](https://linkedin.com/in/frirsta).
